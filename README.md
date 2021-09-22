@@ -1,1 +1,1 @@
-# Wikipedia-Almaty.github.io
+# Wikipedia-Almaty
